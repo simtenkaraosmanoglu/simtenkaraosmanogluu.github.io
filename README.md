@@ -1,1 +1,0 @@
-# simtenkaraosmanogluu.github.io
